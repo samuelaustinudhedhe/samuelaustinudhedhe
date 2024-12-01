@@ -1,7 +1,7 @@
 <h1>SAMUEL AUSTIN UDHEDEH
 </h1>
 
-+2348088885976 ◆ samuelaustinudhedhe@gmail.com
+samuelaustinudhedhe@gmail.com
 
 
 I am a self-motivated, solution-driven professional, excelling in a highly collaborative work environment, finding
